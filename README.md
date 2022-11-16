@@ -5,4 +5,4 @@ My favorite things
 - si A
 - Pres kang Gonzalez
 
-![alt text](https://scontent.fdvo2-2.fna.fbcdn.net/v/t39.30808-6/292526985_100106939448938_8588154003163669327_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=09cbfe&_nc_eui2=AeELqweBu-VE3MEr57JqTGcPxDeA433jHc_EN4DjfeMdz6ep2OL9PASG8nWr7IBycDXhx-4mFOrbHio_q4r6Cybx&_nc_ohc=VciykXiHbK8AX_9X15C&_nc_ht=scontent.fdvo2-2.fna&oh=00_AfAzx-6g-uDurZpMzA0Gpy2xOtBhU6eM9ncFZyS87Y6jTw&oe=6379BEE8)
+![alt text](https://scontent.fdvo2-1.fna.fbcdn.net/v/t39.30808-6/315540243_578961243988555_1737206375481472356_n.jpg?_nc_cat=104&ccb=1-7&_nc_sid=5cd70e&_nc_eui2=AeF7Wn3oF2inroPliTFkhGIlDnEw6l7xecQOcTDqXvF5xJvyOb4JeI7to_dWAKPJOhpWpSc_7ZgTRktTJpnRx4KO&_nc_ohc=XRi09UxKDRwAX8vqaq2&_nc_ht=scontent.fdvo2-1.fna&oh=00_AfAmWcPKFIK3vxtxHE997Hu_8ir_HnWuJDm7auDF2PXFUg&oe=63793543)
