@@ -1,8 +1,9 @@
-# Welcome to loveyoubabeee.github.io
+# Hi! Welcome to loveyoubabeee.github.io
+![alt text](https://i.pinimg.com/564x/b3/37/96/b33796848b7bf8cf5e36778879a1b237.jpg)
 
 My favorite things
-- Ikaw
+- Playing Bball
 - si A
-- magpakatanga sayo
+- Son Chaeyoung
+- TWICE
 
-![alt text](https://scontent.fdvo2-1.fna.fbcdn.net/v/t39.30808-6/315540243_578961243988555_1737206375481472356_n.jpg?_nc_cat=104&ccb=1-7&_nc_sid=5cd70e&_nc_eui2=AeF7Wn3oF2inroPliTFkhGIlDnEw6l7xecQOcTDqXvF5xJvyOb4JeI7to_dWAKPJOhpWpSc_7ZgTRktTJpnRx4KO&_nc_ohc=XRi09UxKDRwAX8vqaq2&_nc_ht=scontent.fdvo2-1.fna&oh=00_AfAmWcPKFIK3vxtxHE997Hu_8ir_HnWuJDm7auDF2PXFUg&oe=63793543)
