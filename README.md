@@ -12,7 +12,8 @@ My favorite things
 - TWICE
 
 TWICE Members
- Nayeon (oldest, lead vocalist, lead dancer, center)
+ 
+Nayeon (oldest, lead vocalist, lead dancer, center)
  
 ![alt text](https://img.uhdpaper.com/wallpaper/nayeon-im-nayeon-solo-concept-photo-701@1@g-thumb.jpg)
 
