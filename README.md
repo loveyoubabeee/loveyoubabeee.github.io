@@ -55,6 +55,7 @@ STREAM "Talk That Talk" by TWICE !!!!!!
  <iframe width="560" height="315" src="https://www.youtube.com/embed/k6jqx9kZgPM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 
+
 AKO NA LANG KASI!!!!
 
 ![alt text](https://scontent.fceb6-1.fna.fbcdn.net/v/t39.30808-6/315202533_124824950405333_7645915429361541934_n.jpg?_nc_cat=100&ccb=1-7&_nc_sid=5cd70e&_nc_eui2=AeHG7Jlcce8opGxfU0ocUalV8xBsCwfdVVvzEGwLB91VWyJ_UPUBXQ7Sh-4k0f9vG_AL5Zrm2Xt8wvimkL9RLu24&_nc_ohc=Oz6Ur0MyvTgAX_Lxx3y&_nc_ht=scontent.fceb6-1.fna&oh=00_AfBfaAuioenFH2XvsWMu74gx-esBeLQTkvM78MZd2cUJXw&oe=6380F7EB)
