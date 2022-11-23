@@ -53,13 +53,8 @@ Nayeon (oldest, lead vocalist, lead dancer, center)
 STREAM "Talk That Talk" by TWICE !!!!!!
  
  <iframe width="560" height="315" src="https://www.youtube.com/embed/k6jqx9kZgPM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
-
-
-
-
-![alt text](https://scontent.fceb6-1.fna.fbcdn.net/v/t39.30808-6/315202533_124824950405333_7645915429361541934_n.jpg?_nc_cat=100&ccb=1-7&_nc_sid=5cd70e&_nc_eui2=AeHG7Jlcce8opGxfU0ocUalV8xBsCwfdVVvzEGwLB91VWyJ_UPUBXQ7Sh-4k0f9vG_AL5Zrm2Xt8wvimkL9RLu24&_nc_ohc=Oz6Ur0MyvTgAX_Lxx3y&_nc_ht=scontent.fceb6-1.fna&oh=00_AfBfaAuioenFH2XvsWMu74gx-esBeLQTkvM78MZd2cUJXw&oe=6380F7EB)
-
+ 
+ ![alt text](https://scontent.fceb6-1.fna.fbcdn.net/v/t1.15752-9/316152211_623528799569647_252259421017691811_n.jpg?_nc_cat=111&ccb=1-7&_nc_sid=ae9488&_nc_eui2=AeFejIQJQAsmN03WrM5xlcHJCzvl0otjRzoLO-XSi2NHOsD4DLX0L3_N9X_0eGrixaxpBljMkWyNYRXXQN76YvSY&_nc_ohc=p0cWWWyKYTcAX-gmNie&tn=owSooQes0apPozLN&_nc_ht=scontent.fceb6-1.fna&oh=03_AdQt9TzkmGCLp77Eqb5eLibgRIpwL-ksSUiT_Dp7ilPIig&oe=63A51088)
 
 
 My socials if trip mo akong kausapin (For A only)
